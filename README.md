@@ -1,1 +1,0 @@
-# Pterodyacal-Installero
